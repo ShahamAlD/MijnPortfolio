@@ -14,7 +14,7 @@
 <br clear="both">
 
 <div align="center">
-  <img height="160" src="[https://imgflip.com/gif/9lk890](https://www.behance.net/gallery/92880429/ROG-Wallpaper-Design/modules/536745309)"/>
+  <img height="260" src="[https://imgflip.com/gif/9lk890](https://www.behance.net/gallery/92880429/ROG-Wallpaper-Design/modules/536745309)"/>
 </div>
 
 ###
